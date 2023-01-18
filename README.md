@@ -1,0 +1,2 @@
+# Dynamics_Homework
+05190000599_Kaan_Pestil
